@@ -14,4 +14,4 @@ Feel free to email me at: [m.s.miriti@gmail.com](mailto:m.s.miriti@gmail.com).
 
 Find me in other places:
 
-[Website](https://miriti.dev/) | [Twitter/X](https://twitter.com/michael_miriti) | [YouTube](https://www.youtube.com/@MichaelRecreationalCoder)
+[Website](https://miriti.dev/) | [X (former Twitter)](https://x.com/michael_miriti) | [YouTube](https://www.youtube.com/@miriti_dev)
